@@ -1,4 +1,4 @@
-# Presentation Script — Group 12
+# Presentation Script — Group 14
 **Topic:** Impact of Indian Science, Humanities & Technology on Transformative Development and SDG-Based Goals
 **Duration:** ~10 Minutes | **Speakers:** 6
 
